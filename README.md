@@ -5,7 +5,7 @@
 
 - <a href="https://emoji.gg/emoji/9691-hellokittyarrowr"><img src="https://cdn3.emoji.gg/emojis/9691-hellokittyarrowr.gif" width="32px" height="32px" alt="HelloKittyArrowR"></a> I'm currently learning **Embeded systems and c++**
 
-- <a href="https://emoji.gg/emoji/9691-hellokittyarrowr"><img src="https://cdn3.emoji.gg/emojis/9691-hellokittyarrowr.gif" width="32px" height="32px" alt="HelloKittyArrowR"></a> What I like to do: **I like Gaming Fashion and Styling Coding ...and OF COUSRE MY HUSBANNNNDDD!**
+- <a href="https://emoji.gg/emoji/9691-hellokittyarrowr"><img src="https://cdn3.emoji.gg/emojis/9691-hellokittyarrowr.gif" width="32px" height="32px" alt="HelloKittyArrowR"></a> What I like to do: **I like Gaming Fashion and Styling Coding ...and OF COURSE MY HUSBANNNNDDD!**
 
 <h3 align="center">Connect with me:</h3>
 <div align="center">
